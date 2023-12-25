@@ -29,5 +29,10 @@
 
 ![image](https://github.com/alokVerma749/Images/assets/87599400/ec32888b-b9a1-43c6-983b-e16d29fc3d9b)
 
+# NextJS Images
+
+![image](https://github.com/alokVerma749/Images/assets/87599400/f86ff70b-b774-493e-9527-89da0a2ee1f3)
+
+
 
 
