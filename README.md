@@ -43,6 +43,20 @@
 
 ![image](https://github.com/alokVerma749/Images/assets/87599400/7ad044b8-3439-45ea-a4ad-fb6fe4d0e3c0)
 
+# Pending 
+
+![image](https://github.com/alokVerma749/Images/assets/87599400/3fa81495-db31-4f7b-97fd-cb5985b08ad1)
+
+![image](https://github.com/alokVerma749/Images/assets/87599400/a86a9fc6-7b95-4aa8-8d95-ad5a38b8d046)
+
+![image](https://github.com/alokVerma749/Images/assets/87599400/bf4665b8-0169-45bc-a67e-eb96dd6cf2df)
+
+![image](https://github.com/alokVerma749/Images/assets/87599400/3b8d1276-f503-4523-a7e7-d3b249bf6a5b)
+
+
+
+
+
 
 
 
