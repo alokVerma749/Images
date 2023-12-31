@@ -53,6 +53,8 @@
 
 ![image](https://github.com/alokVerma749/Images/assets/87599400/3b8d1276-f503-4523-a7e7-d3b249bf6a5b)
 
+![white-background-designify](https://github.com/alokVerma749/Images/assets/87599400/0af8056f-f5c2-4767-b180-28763b3aaf87)
+
 
 
 
